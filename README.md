@@ -1,1 +1,1 @@
-# Exposici-n
+# Exposicion
